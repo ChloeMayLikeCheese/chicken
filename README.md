@@ -26,13 +26,12 @@
 ### Prepare the Chicken:
 Place the chicken breasts between two sheets of plastic wrap and gently pound them to about 1/4 inch thickness.
 Season both sides of the chicken with salt, pepper, and paprika (optional).
-Layer the Ham and Cheese:
 
+## Layer the Ham and Cheese:
 Place one slice of ham and one slice of cheese on each flattened chicken breast.
 Roll each chicken breast tightly, starting from the narrower end, to enclose the ham and cheese. Secure with toothpicks.
 
 ### Bread the Chicken:
-
 Set up three shallow bowls: one with flour, one with beaten eggs, and one with breadcrumbs.
 Dredge each chicken roll first in flour, then dip it into the beaten egg, and finally coat it with breadcrumbs.
 
